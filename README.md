@@ -1,6 +1,6 @@
 
-Last updated October 13, 2026
 PRIVACY POLICY
+
 Flood & Fortune does not collect, sell or share personal information. There are no accounts, no ads and no analytics.
 
 Saved progress
